@@ -5,5 +5,5 @@
 - 📫 How to reach me : 
 - mail: sabrina.b@nebulae-design.com
 - LinkedIn: Sabrina Boukherouba
-- 👀 To watch my previous project : go to my website : nebulae-design.com
+- 👀 To watch my previous projects => go to my website : nebulae-design.com
 
